@@ -1,4 +1,4 @@
-##**whoami** ?
+## **whoami** ?
 I'm 20 year old technology geek who is currently stuck in collapse country.
 Knowledge I have is related mostly to IT, Computer Security, IT Security and Research, Ethical Hacking. That knowledge set is not excelent, or related to just one. It's acquired over the years, for example first time I had contact with any type of development it was back in 2009 (12 year old, lolwat) while I was creating my own private servers for WoW (World of WarCraft). After that I started to learn different things everyday, and I'm still learning, technology is my only goal, nothing else, no math, no chemistry, no physics...
 I'm really friendly and communicative, and depends on my mood, sometimes you can't follow me, sorry about that.
